@@ -1,5 +1,6 @@
 # 💫 About Me:
-A 19 Yr boy exploring coding.
+• A 19 Yr boy exploring coding.
+• Reach me at theboringguy99@gmail.com
 
 
 ## 🌐 Socials:
