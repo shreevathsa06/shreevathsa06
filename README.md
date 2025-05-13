@@ -3,6 +3,8 @@
 
 • Reach me at theboringguy99@gmail.com
 
+<p align="left"> <img margin-top="10 px" src="https://komarev.com/ghpvc/?username=shreevathsa06&label=Profile%20views&color=0e75b6&style=flat" alt="shreevathsa06" /> </p>
+
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/shreevathsa06/) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/https://x.com/Shreevathsa06) 
